@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Trakhimovich.github.io/rsschool-cv/
